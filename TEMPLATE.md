@@ -1,5 +1,4 @@
-# Name 
-ANANTHAKRISHNAN A S
+# ANANTHAKRISHNAN A S
 
 ### About Me
 Dedicated and Hardworking PG student who is adaptable to all challenging situations and is committed to contribute
